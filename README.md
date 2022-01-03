@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Prateek Yadav but you can call me @zysta
+- 👋 Hi, I’m Prateek Yadav
 - 👀 I’m interested in teaching this dumb/supersmart machine to how to solve problems in its own language
 - 🌱 I’m currently learning a interesting subject which I really like to keep a secret.
 - 📫 How to reach me?? well I'm not on any social site (phew!!) but I'll leave my mail here: yadavprateek39@gmail.com
